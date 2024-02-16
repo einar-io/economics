@@ -20,6 +20,10 @@ Economics for High School Students, Thomas E. Woods, Jr., 2009
 
 What are the historical sources of our wealth? Is it wealth that drives politics or the other way around?
 
+#### How The Economic Machine Works
+https://youtu.be/PHe0bXAIuk0
+Economics 101: How the Economic Machine Works by Ray Dalio, 2013
+
 ## Introduction to Austrian Economics
 #### Subjective value
 https://youtu.be/c-rCenyYnyk
