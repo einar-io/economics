@@ -172,3 +172,10 @@ A collection of eight lectures by Murray N. Rothbard, spanning from the 1970s to
 https://www.youtube.com/playlist?list=PLKjJE86mQRtvCN4vEsxYEntK0MFbsAv4t
 
 Presented by Murray N. Rothbard in 1986 at New York Polytechnic University. Recorded by Hans-Hermann Hoppe.
+
+#### Danish Capitalism in the 20th Century
+A Business History of an Innovistic Mixed Economy
+Stefan Kirkegaard Sløk-Madsen, 2022
+
+Shows how firm-based innovation drove Danish prosperity and redistributive capacity.
+Traces Denmark's move to universal mixed economy welfare state at the end of the 20th century.
